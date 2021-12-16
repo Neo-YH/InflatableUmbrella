@@ -8,4 +8,4 @@ We know leaf veins have a very strong structure. So I am wondering if it possibl
 
 You no longer need to tidy the umbrella, because the surface of it will be squeezed into the stick when you close the umbrella. Next, you just need to put on a waterproof cover to avoid the pain caused by rain.  
 
-It can be chanllenging to say the inflatable umbrella can save you in a heavy rain. But it should be fine to save you from ultraviolet light if the wind is just mild.
+It can be chanllenging to say the inflatable umbrella can save you in a heavy rain, unless we can prove it later. But it should be fine to save you from ultraviolet light if the wind is just mild.
